@@ -1,0 +1,2 @@
+# quruxsumar
+Xaquuqda Dumar
